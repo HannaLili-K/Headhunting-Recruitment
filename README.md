@@ -25,3 +25,6 @@ I have successfully partnered with companies in IT, Finance, Biotech, and Manufa
 
 Whether it’s a highly confidential "replacement" search where discretion is key, or a transparent growth project, I’m in. I don’t rely on luck or just waiting for applicants, I hunt, I research, and I talk to your team to understand who you really need.
 If you’re looking for a partner who is as excited about your product as you are, let’s have a chat.
+
+<img width="853" height="480" alt="HR" src="https://github.com/user-attachments/assets/9141ec86-b5ab-4be0-8e85-9df456b7165c" />
+
