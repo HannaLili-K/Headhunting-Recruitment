@@ -8,6 +8,7 @@ If I can’t pass the first round of an interview myself by knowing what a candi
 What I bring to the table
 
 **Diverse Experience:** I’ve worked in agencies, US-based tech giants, and agile startups. I’ve seen how internal recruitment works in massive multinationals and how to scale a team from scratch in a small office.
+
 **Quality over Volume:** While I’ve managed high-volume recruitment (and I know how to use sourcing tools and platforms at lightning speed), my heart is in the niche searches.
 The "One Perfect Candidate" Philosophy: A former mentor once told me: "You don’t need a shortlist of ten; you need the one perfect candidate." It’s a high bar, but it’s what I strive for.
 **Cultural Fit:** Technical perfection is only half the battle. I look for the personality that fits your team’s DNA to ensure long-term success and a great product.
@@ -27,11 +28,6 @@ Whether it’s a highly confidential "replacement" search where discretion is ke
 If you’re looking for a partner who is as excited about your product as you are, let’s have a chat.
 
 <img width="853" height="480" alt="HR" src="https://github.com/user-attachments/assets/9141ec86-b5ab-4be0-8e85-9df456b7165c" />
-[Beige Minimalist Feminine Creative Portfolio Presentation (5).pdf](https://github.com/user-attachments/files/27273365/Beige.Minimalist.Feminine.Creative.Portfolio.Presentation.5.pdf)
-
-[Beige Minimalist Feminine Creative Portfolio Presentation (6).pdf](https://github.com/user-attachments/files/27273376/Beige.Minimalist.Feminine.Creative.Portfolio.Presentation.6.pdf)
-
-[Beige Minimalist Feminine Creative Portfolio Presentation (7).pdf](https://github.com/user-attachments/files/27273383/Beige.Minimalist.Feminine.Creative.Portfolio.Presentation.7.pdf)
 
 
 
