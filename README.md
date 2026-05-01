@@ -11,6 +11,7 @@ What I bring to the table
 
 **Quality over Volume:** While I’ve managed high-volume recruitment (and I know how to use sourcing tools and platforms at lightning speed), my heart is in the niche searches.
 The "One Perfect Candidate" Philosophy: A former mentor once told me: "You don’t need a shortlist of ten; you need the one perfect candidate." It’s a high bar, but it’s what I strive for.
+
 **Cultural Fit:** Technical perfection is only half the battle. I look for the personality that fits your team’s DNA to ensure long-term success and a great product.
 
 # My Track Record
