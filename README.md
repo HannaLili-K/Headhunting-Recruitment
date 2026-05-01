@@ -27,4 +27,8 @@ Whether it’s a highly confidential "replacement" search where discretion is ke
 If you’re looking for a partner who is as excited about your product as you are, let’s have a chat.
 
 <img width="853" height="480" alt="HR" src="https://github.com/user-attachments/assets/9141ec86-b5ab-4be0-8e85-9df456b7165c" />
+[Beige Minimalist Feminine Creative Portfolio Presentation (5).pdf](https://github.com/user-attachments/files/27273365/Beige.Minimalist.Feminine.Creative.Portfolio.Presentation.5.pdf)
+[Beige Minimalist Feminine Creative Portfolio Presentation (6).pdf](https://github.com/user-attachments/files/27273376/Beige.Minimalist.Feminine.Creative.Portfolio.Presentation.6.pdf)
+[Beige Minimalist Feminine Creative Portfolio Presentation (7).pdf](https://github.com/user-attachments/files/27273383/Beige.Minimalist.Feminine.Creative.Portfolio.Presentation.7.pdf)
+
 
