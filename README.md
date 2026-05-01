@@ -18,10 +18,10 @@ The "One Perfect Candidate" Philosophy: A former mentor once told me: "You donâ€
 
 I have successfully partnered with companies in IT, Finance, Biotech, and Manufacturing, filling roles such as:
 
-*Software Architects & Cyber Security Experts
-*ML & AI Developers
-*Physicists, Mathematicians, and Quants
-*C-level IT Leadership and specialized Sales/Marketing roles.
+* Software Architects & Cyber Security Experts
+* ML & AI Developers
+* Physicists, Mathematicians, and Quants
+* C-level IT Leadership and specialized Sales/Marketing roles.
 
 # Letâ€™s build your team together
 
